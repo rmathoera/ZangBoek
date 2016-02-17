@@ -8,4 +8,6 @@
 * [Jai Ganesh Jai Ganesh](jai_ganesh_jai_ganesh.md)
 * [Ma Teri Mamta](ma_teri_mamta.md)
 * [Achyutam Keshavam](achyutam_keshavam.md)
+   * Aye malik tere bande hum
 * [Gaytri mantra](gaytri_mantra.md)
+
