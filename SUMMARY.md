@@ -9,6 +9,6 @@
 * [Ma Teri Mamta](ma_teri_mamta.md)
 * [Tum hi ho maata pita](tumhi_ho_maata_pita.md)
 * [Achyutam Keshavam](achyutam_keshavam.md)
-   * [Aye malik tere bande hum](aye_malik_tere_bande_hum.md)
 * [Gaytri mantra](gaytri_mantra.md)
+* [Aye Malik tere Bande Hum](Aye malik tere bande hum.md)
 
