@@ -10,6 +10,5 @@
 * [Tum hi ho maata pita](tumhi_ho_maata_pita.md)
 * [Achyutam Keshavam](achyutam_keshavam.md)
    * [Aye malik tere bande hum](aye_malik_tere_bande_hum.md)
-       * [Tum hi ho maata pita](tumhi_ho_maata_pita_md.md)
 * [Gaytri mantra](gaytri_mantra.md)
 
