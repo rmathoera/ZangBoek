@@ -1,4 +1,6 @@
 {
-    "plugins": [],
+    "plugins": [
+        "audio_image"
+    ],
     "pluginsConfig": {}
 }
