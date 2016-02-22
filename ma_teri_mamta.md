@@ -1,4 +1,5 @@
 ## Ma Teri Mamta {#ma-teri-mamta}
+![](devi_gayatri1.jpg)
 
 MAA TERI MAMTA KITNI PYAREE,
 KITNA PYAR JAGAATE HAI (2X)
