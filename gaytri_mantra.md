@@ -1,5 +1,7 @@
 ## Gaytri mantra {#gaytri-mantra}
 
+![](devi_gayatri1.jpg)
+
 Om Bhur Bhuvah Suvah
 
 Tat Savitur Vareṇyaṃ
