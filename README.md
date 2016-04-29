@@ -1,7 +1,7 @@
 
 # Hindi Zangboek {#hindi-zangboek}
 
-![](radha_krishna_colored_by_flow692-d87hpyd.jpg)
+![Image](../styles/images/radha_krishna_colored_by_flow692-d87hpyd.jpg)
 
 * Hanuman Chalisa
 * Maha Mantra
