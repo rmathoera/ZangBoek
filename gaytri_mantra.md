@@ -2,10 +2,10 @@
 
 ![](devi_gayatri1.jpg)
 
-Om Bhur Bhuvah Suvah
+      Om Bhur Bhuvah Suvah
 
-Tat Savitur Vareṇyaṃ
+      Tat Savitur Vareṇyaṃ
 
-Bhargo Devasya Dhīmahi
+      Bhargo Devasya Dhīmahi
 
-Dhiyo Yó Naḥ Pracodayāt
+      Dhiyo Yó Naḥ Pracodayāt
