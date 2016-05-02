@@ -1,77 +1,77 @@
 ## Om Jai Jagdish {#om-jai-jagdish}
 
-Om Jaye Jagdish Hare,
+    Om Jaye Jagdish Hare,
 
-Swami Jaye Jagdish Hare
+    Swami Jaye Jagdish Hare
 
-Bhagt Jano Ke Sankat,
+    Bhagt Jano Ke Sankat,
 
-Khshan Mein Dur Kare ...
+    Khshan Mein Dur Kare ...
 
-Jo Dhaywe Phal Pave,
+    Jo Dhaywe Phal Pave,
 
-Dukh Vinshe Man Ka
+    Dukh Vinshe Man Ka
 
-Sukh Sampati Ghar Aave,
+    Sukh Sampati Ghar Aave,
 
-Kasht Mite Tan Ka ...
+    Kasht Mite Tan Ka ...
 
-Maat-Pita Tum Mere,
+    Maat-Pita Tum Mere,
 
-Sharan Gahun Kiskee
+    Sharan Gahun Kiskee
 
-Tum Bin Aur Na Duja,
+    Tum Bin Aur Na Duja,
 
-Aas Karun Jiskee ...
+    Aas Karun Jiskee ...
 
-Tum Puran Parmatma,
+    Tum Puran Parmatma,
 
-Tum Antaryami
+    Tum Antaryami
 
-Par-Brahm Parmeshwar,
+    Par-Brahm Parmeshwar,
 
-Tum Sabke Swami ...
+    Tum Sabke Swami ...
 
-Tum Karuna Ke Saagar,
+    Tum Karuna Ke Saagar,
 
-Tum Palankarta
+    Tum Palankarta
 
-Mein Moorakh Khal Kami,
+    Mein Moorakh Khal Kami,
 
-Mein Sewak Tum Swami,
+    Mein Sewak Tum Swami,
 
-Kripa Karo Bharta ...
+    Kripa Karo Bharta ...
 
-Tum Ho Ek Agochar,
+    Tum Ho Ek Agochar,
 
-Sabke Pran Pati
+    Sabke Pran Pati
 
-Kis Vidhi Milun Dayamay,
+    Kis Vidhi Milun Dayamay,
 
-Tumko Mein Kumti ...
+    Tumko Mein Kumti ...
 
-Deenbandhu Dukh Harta,
+    Deenbandhu Dukh Harta,
 
-Thakur Tum Mere
+    Thakur Tum Mere
 
-Apne Hath Badao,
+    Apne Hath Badao,
 
-Apni Sharan Lagao,
+    Apni Sharan Lagao,
 
-Dwar Para Tere ...
+    Dwar Para Tere ...
 
-Vishay Vikaar Mitao,
+    Vishay Vikaar Mitao,
 
-Paap Haro Deva
+    Paap Haro Deva
 
-Shradha Bhakti Barao,
+    Shradha Bhakti Barao,
 
-Santan Ki Sewa ...
+    Santan Ki Sewa ...
 
-Tan Man Dhan,
+    Tan Man Dhan,
 
-Sab Hai Tera
+    Sab Hai Tera
 
-Tera Tujhko Arpan,
+    Tera Tujhko Arpan,
 
-Kya Lage Mera ...
+    Kya Lage Mera ...
