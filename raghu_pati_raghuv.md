@@ -1,53 +1,53 @@
 ## Raghu Pati Raghuv {#raghu-pati-raghuv}
 
-Raghupati Raghav Raja Ram
+    Raghupati Raghav Raja Ram
 
-Patita Pavan Sitaram
+    Patita Pavan Sitaram
 
-Sitaram, Sitaram,
+    Sitaram, Sitaram,
 
-Bhaj Pyare Mana Sitaram
+    Bhaj Pyare Mana Sitaram
 
-Raghupati Raghav Raja Ram
+    Raghupati Raghav Raja Ram
 
-Patita Pavan Sitaram
+    Patita Pavan Sitaram
 
-Ishwar Allah Tero Nam,
+    Ishwar Allah Tero Nam,
 
-Sabako Sanmati De Bhagawan
+    Sabako Sanmati De Bhagawan
 
-Raghupati Raghav Raja Ram
+    Raghupati Raghav Raja Ram
 
-Patita Pavan Sitaram
+    Patita Pavan Sitaram
 
-Mukhmen Tulsi Ghatamen Ram,
+    Mukhmen Tulsi Ghatamen Ram,
 
-Jab Bolo Tab Sitaram
+    Jab Bolo Tab Sitaram
 
-Raghupati Raghav Raja Ram
+    Raghupati Raghav Raja Ram
 
-Patita Pavan Sitaram
+    Patita Pavan Sitaram
 
-Hathose Karo Gharka Kam,
+    Hathose Karo Gharka Kam,
 
-Mukhase Bolo Sitaram
+    Mukhase Bolo Sitaram
 
-Raghupati Raghav Raja Ram
+    Raghupati Raghav Raja Ram
 
-Patita Pavan Sitaram
+    Patita Pavan Sitaram
 
-Kaushalyaka Vhala Ram,
+    Kaushalyaka Vhala Ram,
 
-Dashrathjika Pyara Ram
+    Dashrathjika Pyara Ram
 
-Raghupati Raghav Raja Ram
+    Raghupati Raghav Raja Ram
 
-Patita Pavan Sitaram
+    Patita Pavan Sitaram
 
-Bansivala Hay Ghanshyam,
+    Bansivala Hay Ghanshyam,
 
-Dhanushya Dhari Sitaram
+    Dhanushya Dhari Sitaram
 
-Raghupati Raghav Raja Ram
+    Raghupati Raghav Raja Ram
 
-Patita Pavan Sitaram
+    Patita Pavan Sitaram
