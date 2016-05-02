@@ -1,113 +1,113 @@
 ## Hanuman Chalisa {#hanuman-chalisa}
 
 
-श्री गुरु चरन सरोज रज, निज मनु मुकुर सुधारि ।बरनऊँ रघुवर विमल जसु, जो दायकु फल चारि ।।
+      श्री गुरु चरन सरोज रज, निज मनु मुकुर सुधारि ।बरनऊँ रघुवर विमल जसु, जो दायकु फल चारि ।।
 
 Shrí Guru charan saroj raj, nij manu mukur sudhári.Barnaún Raghuvar vimal jasu, jo dáyaku phal chári.
 
-बुद्धिहीन तनु जानिके, सुमिरों पवन कुमार ।बल बुद्धि विद्या देऊ मोहि, हरहु कलेश विकार ।।
+      बुद्धिहीन तनु जानिके, सुमिरों पवन कुमार ।बल बुद्धि विद्या देऊ मोहि, हरहु कलेश विकार ।।
 
 Buddhihín tanu jánike, sumiron Pavan kumár.Bal buddhi vidya deú mohi, harahu kalesh vikár.
 
-चौपाई – Chaupáí
+      चौपाई – Chaupáí
 
-जय हनुमान ज्ञान गुन सागर ।जय कपीश तिहुं लोक उजागर ।।
+      जय हनुमान ज्ञान गुन सागर ।जय कपीश तिहुं लोक उजागर ।।
 
 Jay Hanumán gyán gun ságar,Jay Kapísh tihun lok ujágar.
 
-रामदूत अतुलित बलधामा ।अंजनि पुत्र पवनसुत नामा ।।
+     रामदूत अतुलित बलधामा ।अंजनि पुत्र पवनसुत नामा ।।
 
 Rámadút atulit baladhámá,Anjani putra Pavansut námá.
 
-महावीर विक्रम बजरंगी ।कुमति निवार सुमति के संगी ।।
+    महावीर विक्रम बजरंगी ।कुमति निवार सुमति के संगी ।।
 
 Mahávír vikram bajarangí,Kumati nivár sumati ke sangí.
 
-कंचन वरन बिराज सुवेसा ।कानन कुण्डल कुंचित केसा ।।
+    कंचन वरन बिराज सुवेसा ।कानन कुण्डल कुंचित केसा ।।
 
 Kanchan varan biráj suvesa,Kánan kundal kunchit kesa.
 
-हाथ बज्र और ध्वजा बिराजै ।काँधे मूँज जनेऊ साजै ।।
+    हाथ बज्र और ध्वजा बिराजै ।काँधे मूँज जनेऊ साजै ।।
 
 Háth bajra aur dhvajá birájai,Kándhe múnj janeú sájai.
 
-शंकर सुवन केसरी नन्दन ।तेज प्रताप महा जग वन्दन ।।
+    शंकर सुवन केसरी नन्दन ।तेज प्रताप महा जग वन्दन ।।
 
 Shankar suvan Kesarí nandan,Tej pratáp mahá jag vandan.
 
-विद्यावान गुनी अति चातुर ।राम काज करिबे को आतुर ।।
+    विद्यावान गुनी अति चातुर ।राम काज करिबे को आतुर ।।
 
 Vidyáván guní ati chátur,Rám káj karibe ko átur.
 
-प्रभु चरित्र सुनिबे को रसिया ।राम लखन सीता मन बसिया ।।
+    प्रभु चरित्र सुनिबे को रसिया ।राम लखन सीता मन बसिया ।।
 
 Prabhu charitra sunibe ko rasiyá,Rám Lakhan Sítá man basiyá.
 
-सूक्ष्म रूप धरि सियहिं दिखावा ।विकट रूप धरि लंक जरावा ।।
+    सूक्ष्म रूप धरि सियहिं दिखावा ।विकट रूप धरि लंक जरावा ।।
 
 Súkshma rúp dhari Siyahi dikhává,Vikat rúp dhari Lank jarává.
 
-भीम रूप धरि असुर संहारे ।रामचन्द्र के काज संवारे ।।
+    भीम रूप धरि असुर संहारे ।रामचन्द्र के काज संवारे ।।
 
 Bhím rúp dhari asur sanháre,Rámchandra ke káj sanváre.
 
-लाय संजीवन लखन जियाये ।श्री रघुवीर हरषि उर लाये ।।
+    लाय संजीवन लखन जियाये ।श्री रघुवीर हरषि उर लाये ।।
 
 Láya sanjívan Lakhan jiyáye,Shri Raghuvír harashi ur láye.
 
-रघुपति कीन्ही बहुत बड़ाई ।तुम मम प्रिय भरतहि सम भाई ।।
+    रघुपति कीन्ही बहुत बड़ाई ।तुम मम प्रिय भरतहि सम भाई ।।
 
 Raghupati kínhí bahut baráí,Tum mam priya bharatahi sam bháí.
 
-सहस बदन तुम्हरो जह गावैँ ।अस कहि श्रीपति कंठ लगावैं ।।
+    सहस बदन तुम्हरो जह गावैँ ।अस कहि श्रीपति कंठ लगावैं ।।
 
 Sahas badan Tumhro jas gávain,As kahi Shrípati kanth lagávain.
 
-सनकादिक ब्रह्मादि मुनीशा ।नारद शारद सहित अहीसा ।।
+    सनकादिक ब्रह्मादि मुनीशा ।नारद शारद सहित अहीसा ।।
 
 Sanakádik Brahmádi muníshá,Nárad Shárad sahit Ahísá.
 
-यम कुबेर दिगपाल जहाँ ते ।कवि कोबिद कहि सके कहाँ ते ।।
+    यम कुबेर दिगपाल जहाँ ते ।कवि कोबिद कहि सके कहाँ ते ।।
 
 Yam Kuber Digapál jahan te,Kavi kobid kahi sake kahán te.
 
-तुम उपकार सुग्रीवहिं कीन्हा ।राम मिलाय राजपद दीन्हा ।।
+    तुम उपकार सुग्रीवहिं कीन्हा ।राम मिलाय राजपद दीन्हा ।।
 
 Tum upkár Sugrívahin kínhá,Rám miláy rájpad dínhá.
 
-तुम्हरो मन्त्र विभीषन माना ।लंकेश्वर भये सब जग जाना ।।
+    तुम्हरो मन्त्र विभीषन माना ।लंकेश्वर भये सब जग जाना ।।
 
 Tumhro mantra Vibhíshan máná,Lankeshvar bhaye sab jag jáná.
 
-जुग सहस्त्र योजन पर भानू ।लील्यो ताहि मधुर फल जानू ।।
+    जुग सहस्त्र योजन पर भानू ।लील्यो ताहि मधुर फल जानू ।।
 
 Jug sahastra yojan par bhánú,Lílyo táhi madhur phal jánú.
 
-प्रभु मुद्रिका मेलि मुख माहीं ।जलधि लांघि गए अचरज नाहीं ।।
+    प्रभु मुद्रिका मेलि मुख माहीं ।जलधि लांघि गए अचरज नाहीं ।।
 
 Prabhu mudriká meli mukh máhín,Jaldhi lánghi gae acharaj náhín.
 
-दुर्गम काज जगत के जेते ।सुगम अनुग्रह तुम्हरे तेते ।।
+    दुर्गम काज जगत के जेते ।सुगम अनुग्रह तुम्हरे तेते ।।
 
 Durgam káj jagat ke jete,Sugam anugrah Tumhre tete.
 
-राम दुआरे तुम रखवारे ।होत न आज्ञा बिनु पैसारे ।।
+    राम दुआरे तुम रखवारे ।होत न आज्ञा बिनु पैसारे ।।
 
 Rám duáre Tum rakhváre,Hot na ágya binu paisáre.
 
-सब सुख लहै तुम्हारी सरना ।तुम रक्षक काहू को डरना ।।
+    सब सुख लहै तुम्हारी सरना ।तुम रक्षक काहू को डरना ।।
 
 Sab sukh lahai Tumhárí saraná,Tum rakshak kahu ko daraná.
 
-आपन तेज सम्हारो आपै ।तीनों लोक हाँक तें काँपै ।।
+    आपन तेज सम्हारो आपै ।तीनों लोक हाँक तें काँपै ।।
 
 Ápan tej samháro ápai,Tínon lok hánk ten kánpai.
 
-भूत पिशाच निकट नहिं आवै ।महाबीर जब नाम सुनावै ।।
+    भूत पिशाच निकट नहिं आवै ।महाबीर जब नाम सुनावै ।।
 
 Bhút pishách nikat nahin ávai,Mahabír jab nám sunávai.
 
-नासै रोग हरै सब पीरा ।जपत निरंतर हनुमत बीरा ।।
+    नासै रोग हरै सब पीरा ।जपत निरंतर हनुमत बीरा ।।
 
 Nasai rog harai sab pírá,Japat nirantar Hanumat bírá.
 
