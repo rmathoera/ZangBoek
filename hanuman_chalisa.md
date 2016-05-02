@@ -111,66 +111,66 @@ Bhút pishách nikat nahin ávai,Mahabír jab nám sunávai.
 
 Nasai rog harai sab pírá,Japat nirantar Hanumat bírá.
 
-संकट ते हनुमान छुड़ावै ।मन क्रम वचन ध्यान जो लावै ।।
+    संकट ते हनुमान छुड़ावै ।मन क्रम वचन ध्यान जो लावै ।।
 
 Sankat te Hanumán chhurávai,Man kram vachan dhyán jo lávai.
 
-सब पर राम तपस्वी राजा ।तिनके काज सकल तुम साजा ।।
+    सब पर राम तपस्वी राजा ।तिनके काज सकल तुम साजा ।।
 
 Sab par Rám tapasví rájá,Tinke káj sakal Tum sájá.
 
-और मनोरथ जो कोई लावै ।सोई अमित जीवन फल पावै ।।
+    और मनोरथ जो कोई लावै ।सोई अमित जीवन फल पावै ।।
 
 Aur manorath jo koí lávai,Soí amit jívan phal pávai.
 
-चारों जुग परताप तुम्हारा ।है परसिद्ध जगत उजियारा ।।
+    चारों जुग परताप तुम्हारा ।है परसिद्ध जगत उजियारा ।।
 
 Cháron jug paratáp Tumhárá,Hai parasiddh jagat ujiyárá.
 
-साधु सन्त के तुम रखवारे ।असुर निकंदन राम दुलारे ।।
+    साधु सन्त के तुम रखवारे ।असुर निकंदन राम दुलारे ।।
 
 Sádhu sant ke Tum rakhváre,Asur nikandan Rám duláre.
 
-अष्ट सिद्धि नौ निधि के दाता ।अस वर दीन जानकी माता ।।
+    अष्ट सिद्धि नौ निधि के दाता ।अस वर दीन जानकी माता ।।
 
 Asht siddhi nau nidhi ke dátá,As var dín Jánakí Mátá.
 
-राम रसायन तुम्हरे पासा ।सदा रहो रघुपति के दासा ।।
+    राम रसायन तुम्हरे पासा ।सदा रहो रघुपति के दासा ।।
 
 Rám rasáyan Tumhre pásá,Sadá raho Raghupati ke dásá.
 
-तुम्हरे भजन राम को पावै ।जनम जनम के दुख बिसरावै ।।
+    तुम्हरे भजन राम को पावै ।जनम जनम के दुख बिसरावै ।।
 
 Tumhre bhajan Rám ko pávai,Janam janam ke dukh bisarávai.
 
-अन्त काल रघुवर पुर जाई ।जहां जन्म हरि भक्त कहाई ।।
+    अन्त काल रघुवर पुर जाई ।जहां जन्म हरि भक्त कहाई ।।
 
 Ant kál Raghuvar pur jáí,Jahan janma Hari bhakt kaháí.
 
-और देवता चित्त न धरई ।हनुमत सेइ सर्व सुख करई ।।
+    और देवता चित्त न धरई ।हनुमत सेइ सर्व सुख करई ।।
 
 Aur Devtá chitt na dharaí,Hanumat sei sarva sukh karaí.
 
-संकट कटै मिटै सब पीरा ।जो सुमिरौ हनुमत बलबीरा ।।
+    संकट कटै मिटै सब पीरा ।जो सुमिरौ हनुमत बलबीरा ।।
 
 Sankat katai mitai sab pírá,Jo sumirau Hanumat balbírá.
 
-जय जय जय हनुमान गोसाईं ।कृपा करहु गुरुदेव की नाईं ।।
+    जय जय जय हनुमान गोसाईं ।कृपा करहु गुरुदेव की नाईं ।।
 
 Jay jay jay Hanumán gosáín,Kripa karahu Gurudev kí náín.
 
-जो सत बार पाठ कर कोई ।छूटहि बंदि महा सुख होई ।।
+    जो सत बार पाठ कर कोई ।छूटहि बंदि महा सुख होई ।।
 
 Jo sat bár páth kar kooí,Chútahi bandi mahá sukh hooí.
 
-जो यह पढ़े हनुमान चालीसा ।होय सिद्धि साखी गौरीसा ।।
+    जो यह पढ़े हनुमान चालीसा ।होय सिद्धि साखी गौरीसा ।।
 
 Jo yah parhe Hanumán chálísá,Hoy siddhi sákhí Gaurísá.
 
-तुलसीदास सदा हरि चेरा ।कीजै नाथ हृदय महँ डेरा ।।
+    तुलसीदास सदा हरि चेरा ।कीजै नाथ हृदय महँ डेरा ।।
 
 Tulsídás sadá Hari cherá,Kíjai Náth hriday mahan derá.
 
-दोहा – Doháपवनतनय संकट हरन, मंगल मूरति रूप ।राम लखन सीता सहित, हृदय बसहु सुर भूप ।।
+    दोहा – Doháपवनतनय संकट हरन, मंगल मूरति रूप ।राम लखन सीता सहित, हृदय बसहु सुर भूप ।।
 
 Pavantanay sankat haran, mangal múrati rúp.Rám Lakhan Sítá sahit, hriday basahu Sur bhúp.
