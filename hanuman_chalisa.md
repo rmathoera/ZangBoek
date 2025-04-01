@@ -1,69 +1,90 @@
 ## Hanuman Chalisa {#hanuman-chalisa}
 
-```
-  श्री गुरु चरन सरोज रज, निज मनु मुकुर सुधारि ।बरनऊँ रघुवर विमल जसु, जो दायकु फल चारि ।।
-```
-
-Shrí Guru charan saroj raj, nij manu mukur sudhári.Barnaún Raghuvar vimal jasu, jo dáyaku phal chári.
-
-```
-  बुद्धिहीन तनु जानिके, सुमिरों पवन कुमार ।बल बुद्धि विद्या देऊ मोहि, हरहु कलेश विकार ।।
+```sh
+  श्री गुरु चरन सरोज रज, निज मनु मुकुर सुधारि ।
+  बरनऊँ रघुवर विमल जसु, जो दायकु फल चारि ।
 ```
 
-Buddhihín tanu jánike, sumiron Pavan kumár.Bal buddhi vidya deú mohi, harahu kalesh vikár.
+Shrí Guru charan saroj raj, nij manu mukur sudhári.
+Barnaún Raghuvar vimal jasu, jo dáyaku phal chári.
 
+```sh
+  बुद्धिहीन तनु जानिके, सुमिरों पवन कुमार ।
+  बल बुद्धि विद्या देऊ मोहि, हरहु कलेश विकार ।
 ```
+
+Buddhihín tanu jánike, sumiron Pavan kumár.
+Bal buddhi vidya deú mohi, harahu kalesh vikár.
+
+```sh
   चौपाई – Chaupáí
 
-  जय हनुमान ज्ञान गुन सागर ।जय कपीश तिहुं लोक उजागर ।।
+  जय हनुमान ज्ञान गुन सागर ।
+  जय कपीश तिहुं लोक उजागर ।
 ```
 
-Jay Hanumán gyán gun ságar,Jay Kapísh tihun lok ujágar.
+Jay Hanumán gyán gun ságar,
+Jay Kapísh tihun lok ujágar.
 
-```
- रामदूत अतुलित बलधामा ।अंजनि पुत्र पवनसुत नामा ।।
-```
-
-Rámadút atulit baladhámá,Anjani putra Pavansut námá.
-
-```
-महावीर विक्रम बजरंगी ।कुमति निवार सुमति के संगी ।।
+```sh
+  रामदूत अतुलित बलधामा ।
+  अंजनि पुत्र पवनसुत नामा ।
 ```
 
-Mahávír vikram bajarangí,Kumati nivár sumati ke sangí.
+Rámadút atulit baladhámá,
+Anjani putra Pavansut námá.
 
-```
-कंचन वरन बिराज सुवेसा ।कानन कुण्डल कुंचित केसा ।।
-```
-
-Kanchan varan biráj suvesa,Kánan kundal kunchit kesa.
-
-```
-हाथ बज्र और ध्वजा बिराजै ।काँधे मूँज जनेऊ साजै ।।
+```sh
+  महावीर विक्रम बजरंगी ।
+  कुमति निवार सुमति के संगी ।
 ```
 
-Háth bajra aur dhvajá birájai,Kándhe múnj janeú sájai.
+Mahávír vikram bajarangí,
+Kumati nivár sumati ke sangí.
 
-```
-शंकर सुवन केसरी नन्दन ।तेज प्रताप महा जग वन्दन ।।
-```
-
-Shankar suvan Kesarí nandan,Tej pratáp mahá jag vandan.
-
-```
-विद्यावान गुनी अति चातुर ।राम काज करिबे को आतुर ।।
+```sh
+  कंचन वरन बिराज सुवेसा ।
+  कानन कुण्डल कुंचित केसा ।
 ```
 
-Vidyáván guní ati chátur,Rám káj karibe ko átur.
+Kanchan varan biráj suvesa,
+Kánan kundal kunchit kesa.
 
-```
-प्रभु चरित्र सुनिबे को रसिया ।राम लखन सीता मन बसिया ।।
+```sh
+  हाथ बज्र और ध्वजा बिराजै ।
+  काँधे मूँज जनेऊ साजै ।
 ```
 
-Prabhu charitra sunibe ko rasiyá,Rám Lakhan Sítá man basiyá.
+Háth bajra aur dhvajá birájai,
+Kándhe múnj janeú sájai.
 
+```sh
+  शंकर सुवन केसरी नन्दन ।
+  तेज प्रताप महा जग वन्दन ।
 ```
-सूक्ष्म रूप धरि सियहिं दिखावा ।विकट रूप धरि लंक जरावा ।।
+
+Shankar suvan Kesarí nandan,
+Tej pratáp mahá jag vandan.
+
+```sh
+  विद्यावान गुनी अति चातुर ।
+  राम काज करिबे को आतुर ।
+```
+
+Vidyáván guní ati chátur,
+Rám káj karibe ko átur.
+
+```sh
+  प्रभु चरित्र सुनिबे को रसिया ।
+  राम लखन सीता मन बसिया ।
+```
+
+Prabhu charitra sunibe ko rasiyá,
+Rám Lakhan Sítá man basiyá.
+
+```sh
+  सूक्ष्म रूप धरि सियहिं दिखावा ।
+  विकट रूप धरि लंक जरावा ।
 ```
 
 Súkshma rúp dhari Siyahi dikhává,Vikat rúp dhari Lank jarává.
